@@ -1,0 +1,2 @@
+# wazas
+paginas
